@@ -69,3 +69,4 @@
 Диплом специалиста, “Лечебный”, “Лечебное дело”
 
 ![Фото](https://sun9-69.userapi.com/impg/kA5bBqUIRrX4FhcUiJCb4nOL42cqKX8MZNBG8Q/TFpiKhOWYRA.jpg?size=810x1080&quality=95&sign=1f25a2f9429154f98d04be6687a8a3ac&type=album)
+theme: tactile
