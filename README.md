@@ -1,7 +1,6 @@
 # Разработчик на JavaScript
 ## Вера Кранцевич
 
-
 +7 (964) 633-01-24, vera.krantsevich@gmail.com
 
 @VeraKrantsevich
