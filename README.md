@@ -68,4 +68,4 @@
 *2010 - 2016* ГБОУ ВПО "Тюменский государственный медицинский университет", г.Тюмень
 Диплом специалиста, “Лечебный”, “Лечебное дело”
 
-![Фото]([[https://sun9-69.userapi.com/impg/kA5bBqUIRrX4FhcUiJCb4nOL42cqKX8MZNBG8Q/TFpiKhOWYRA.jpg?size=810x1080&quality=95&sign=1f25a2f9429154f98d04be6687a8a3ac&type=album](https://sun1-15.userapi.com/impg/c4oVI0q7X8xCdByBc1djcBbjsayelMcJ5Olc0Q/XmSqvCGAfzI.jpg?size=1620x2160&quality=95&sign=6e1fb928491b62de719e2ec9c1b5e888&type=album)https://sun1-15.userapi.com/impg/c4oVI0q7X8xCdByBc1djcBbjsayelMcJ5Olc0Q/XmSqvCGAfzI.jpg?size=1620x2160&quality=95&sign=6e1fb928491b62de719e2ec9c1b5e888&type=album](https://sun1-15.userapi.com/impg/c4oVI0q7X8xCdByBc1djcBbjsayelMcJ5Olc0Q/XmSqvCGAfzI.jpg?size=1620x2160&quality=95&sign=6e1fb928491b62de719e2ec9c1b5e888&type=album)https://sun1-15.userapi.com/impg/c4oVI0q7X8xCdByBc1djcBbjsayelMcJ5Olc0Q/XmSqvCGAfzI.jpg?size=1620x2160&quality=95&sign=6e1fb928491b62de719e2ec9c1b5e888&type=album)
+![Фото](https://github.com/VeraKrantsevich/About-me/assets/134776648/08ca2d40-cb3c-4036-8dfe-d19e5fc038de)
